@@ -2,6 +2,6 @@ Meet blog.nextkhoon.xyz!
 
 Student currently in KYUNGPOOK NATIONAL UNIVERSITY Computer engineering
 
->> JOIN BUNGIE <<
+Dream:   
+*join bungie
 
-DESTINY IS GOD GAME
