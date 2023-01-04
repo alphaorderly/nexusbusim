@@ -1,7 +1,3 @@
-Meet blog.nextkhoon.xyz!
-
-Student currently in KYUNGPOOK NATIONAL UNIVERSITY Computer engineering
-
-Dream:   
-join bungie
+#### 블로그 - https://blog.alphaorderly.com/
+#### GIT - https://git.alphaorderly.com/
 
